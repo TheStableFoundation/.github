@@ -1,1 +1,1 @@
-# Money should flow like data.™
+# Money flows like data.™
